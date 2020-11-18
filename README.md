@@ -8,4 +8,4 @@ The platform has always been fair, impartial, and open. In order to reward partn
 The way to get the reward: After completing the conditions, make a screenshot with the level as well as your ID, and send an email to this account: freemangeeks@gmail.com. The deadline is 12:00 pm on January 1, 2021, expired not to wait.
                                                                            
                                                                                                                                    
-                                                                                                                                   freeman geek team
+                                                                          freeman geek team
